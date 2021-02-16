@@ -1,1 +1,3 @@
-# Logica-ed-esistenza---J.-Hyppolite
+# Logica ed esistenza di Jean-Hyppolite
+
+Traduzione italiana
